@@ -4,4 +4,5 @@ I crocheted another hat!
 
 Final Product:
 
-![IMG_20240824_213614988~3](https://github.com/user-attachments/assets/ec91de43-62ec-431e-908e-2783faa9a899)
+![IMG_20240831_212919458~2](https://github.com/user-attachments/assets/8aa12d74-1b8d-46fe-8f22-9841b17585b1)
+
